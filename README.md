@@ -1,7 +1,6 @@
 # Welcome to my Profile
 so, you are here to see my profile right ?
-
-I'm going to give you a brief introduce about myself
+Here is a brief story about myself.
 
 - ✏️ I'm currently studying in Montfort College
 - ✒️ I'm grade 12 student
